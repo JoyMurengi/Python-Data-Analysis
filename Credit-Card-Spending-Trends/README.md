@@ -1,0 +1,1 @@
+Credit card spending trends
